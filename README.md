@@ -1,4 +1,4 @@
-Hi :)
+Hello :)
 
 I'm Stringatto, and I *love* technology. It's what wakes me up in the morning ngl hehehehe. Anyway this github is for all of my channel/hobby projects.
 Probably gonna put a fuck ton of shit here lmao.
